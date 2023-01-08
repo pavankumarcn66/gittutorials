@@ -1,1 +1,1 @@
-pavan as laptop
+pavan as laptop and he is an AI scientist
